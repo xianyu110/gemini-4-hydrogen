@@ -1,4 +1,4 @@
-# 谷歌今日「换脑」！轻量之王Gemini 4 Hydrogen反杀旗舰
+# 刚刚谷歌轻量之王Gemini 4 Hydrogen发布！反杀旗舰！
 
 ## Gemini 国内使用方式
 
